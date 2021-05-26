@@ -2,7 +2,7 @@
 
 ## Win- win- win- win- situatie.  Het mes snijdt aan vier kanten!
 
-Burgeriniatief van Dr. Willem Fermont en ir. Jorn Baayen, Beekdaelen.
+Burgerinitiatief van Dr. Willem Fermont en ir. Jorn Baayen, Beekdaelen.
 
 De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/default.aspx) vereist dat de gemeenten in Regio Zuid-Limburg samen 1,1-1,9 TeraWattuur (TWh) duurzame energie per jaar gaan opwekken. Het luchthaventerrein van MAA kan aan tenminste 25% van de benodigde regionale energieopgave voldoen. In de onderstaande grafiek zijn enkele kengetallen naast elkaar gezet wat betreft economisch perspectief in miljoenen euro’s. We zijn daarbij uitgegaan van een ongesubsidieerd MAA, dat permanent verlies lijdt (cijfers voor de coronacrisis, 2018, 2019) en de revenuen van drie varianten van MAAsterplan op basis van marktconforme energie-inkoopprijzen (APX).  De getallen spreken voor zich en zouden elke bestuurder moeten overtuigen omdat er vele winnaars zijn.
 
