@@ -13,7 +13,7 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 *Winnaar 3*. De Provincie, als eigenaar van MAA, wordt verlost van een kostbaar hoofdpijndossier, waarbij de schattingen van de totale jaarlijkse deels verkapte subsidies minimaal 4 miljoen bedragen. Tegelijkertijd kan ze een belangrijke stimulans geven in de ontwikkeling van een kenniscentrum voor hoogwaardige werkgelegenheid: ICT-ontwikkeling voor beheer megaparken, ontwikkeling grote warmte-koude buffersystemen, waterstofchemie in samenwerking met DSM/Chemelot, enzovoorts.
 *Winnaar 4*. De B.V. Nederland kan een efficiënt energiepark aanleggen en beheren, dat zich kan meten met de grootste zonne-energieparken in Nederland.
 
-Download het MAAsterplan [hier](maasterplan.pdf) (versie mei 2021).
+Lees het volledige MAAsterplan [hier](maasterplan.pdf) (versie mei 2021, 26 pagina's).
 
 ## Het MAAsterplan en de media
 
