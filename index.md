@@ -1,3 +1,5 @@
+![Grafiek MAAsterplan](maasterplan.svg)
+
 # Documenten
 
 Download het [MAAsterplan](maasterplan.pdf) (versie 1 mei 2021).
