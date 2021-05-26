@@ -1,8 +1,8 @@
 # MAAsterplan
 
-![Grafiek MAAsterplan](maasterplan.svg)
+## Een beter plan voor de energietransitie van de regio Zuid-Limburg
 
-Een beter plan voor de energietransitie van de regio Zuid-Limburg.
+![Grafiek MAAsterplan](maasterplan.svg)
 
 Burgeriniatief van Dr. Willem Fermont en ir. Jorn Baayen, Beekdaelen.
 
