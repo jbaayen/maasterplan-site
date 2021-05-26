@@ -10,7 +10,7 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 **Winnaar 1**. De inrichting van een mega zonne-energiepark op het terrein van MAA, ontlast de 16 gemeenten in regio Zuid-Limburg in belangrijke mate bij het zoeken en inrichten van versnipperde energielocaties.
 
-**Winnaar 2**. De sluiting van de luchthaven wordt toegejuicht door 5250 direct ernstig gehinderden ([rapport Geel, 2021](https://stopgroeimaa.nl/wp-content/uploads/Advies-Pieter-van-Geel-Ontwikkeling-MAA-2021-2030.pdf)) en een groot deel van overig Zuid-Limburg.
+**Winnaar 2**. De sluiting van de luchthaven wordt toegejuicht door 5250 direct ernstig gehinderden ([rapport van Geel, 2021](https://stopgroeimaa.nl/wp-content/uploads/Advies-Pieter-van-Geel-Ontwikkeling-MAA-2021-2030.pdf)) en een groot deel van overig Zuid-Limburg.
 
 **Winnaar 3**. De Provincie, als eigenaar van MAA, wordt verlost van een kostbaar hoofdpijndossier, waarbij de schattingen van de totale jaarlijkse deels verkapte subsidies minimaal 4 miljoen bedragen. Tegelijkertijd kan ze een belangrijke stimulans geven in de ontwikkeling van een kenniscentrum voor hoogwaardige werkgelegenheid: ICT-ontwikkeling voor beheer megaparken, ontwikkeling grote warmte-koude buffersystemen, waterstofchemie in samenwerking met DSM/Chemelot, enzovoorts.
 
