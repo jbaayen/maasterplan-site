@@ -18,7 +18,7 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 ## Het rapport
 
-Lees het volledige MAAsterplan [hier](maasterplan.pdf) (versie mei 2021, 26 pagina's).
+Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021, 25 pagina's).
 
 ## Het MAAsterplan en de media
 
