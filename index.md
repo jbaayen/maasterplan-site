@@ -24,3 +24,5 @@ Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021
 
 * Proefballonnetje uit Beekdaelen: ‘Luchthaven als toplocatie voor duurzame energie’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210519_94966242), 19 mei 2021)
 * Gemeente Haarlem: realisatie eerste PVT-warmtenet staat in de steigers ([Solar Magazine](https://solarmagazine.nl/nieuws-zonne-energie/i24405/gemeente-haarlem-realisatie-eerste-pvt-warmtenet-staat-in-de-steigers), 17 mei 2021)
+
+Dit werk valt onder een [http://creativecommons.org/licenses/by-sa/4.0/](Creative Commons Naamsvermelding-GelijkDelen 4.0 Internationaal-licentie).
