@@ -18,11 +18,19 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 ## Het rapport
 
-Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021, 25 pagina's).
+Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021, 25 pagina's).  Dit werk valt onder een [Creative Commons Naamsvermelding-GelijkDelen 4.0 Internationaal-licentie](http://creativecommons.org/licenses/by-sa/4.0/).
 
 ## Het MAAsterplan en de media
 
+Luchthaven en windenergie gaan slecht samen:
+* Ook piloten in verzet tegen bouw windturbines Holtum: ‘Gevaar voor kleine vliegtuigen van en naar Maastricht Aachen Airport’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210806_95698674), 6 augustus 2021)
+
+Aantal banen Maastricht-Aachen airport veel lager dan gedacht:
+* Opnieuw bewijs van rammelend onderzoek naar Maastricht Airport ([De Volkskrant](https://www.volkskrant.nl/nieuws-achtergrond/opnieuw-bewijs-van-rammelend-onderzoek-naar-maastricht-airport~b77f3861/), 22 juli 2021)
+
+In de Limburger verscheen een artikel over het MAAsterplan, helaas zonder grafiek en getallen:
 * Proefballonnetje uit Beekdaelen: ‘Luchthaven als toplocatie voor duurzame energie’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210519_94966242), 19 mei 2021)
+
+PVT-warmtenetten elders in Nederland:
 * Gemeente Haarlem: realisatie eerste PVT-warmtenet staat in de steigers ([Solar Magazine](https://solarmagazine.nl/nieuws-zonne-energie/i24405/gemeente-haarlem-realisatie-eerste-pvt-warmtenet-staat-in-de-steigers), 17 mei 2021)
 
-Dit werk valt onder een [Creative Commons Naamsvermelding-GelijkDelen 4.0 Internationaal-licentie](http://creativecommons.org/licenses/by-sa/4.0/).
