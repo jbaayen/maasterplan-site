@@ -16,6 +16,10 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 **Winnaar 4**. De **B.V. Nederland** kan een efficiënt energiepark aanleggen en beheren, dat zich kan meten met de [grootste zonne-energieparken in Nederland](https://nl.wikipedia.org/wiki/Lijst_van_zonne-energie-installaties_in_Nederland).
 
+## Het idee
+
+https://user-images.githubusercontent.com/131573/129572480-5443be2a-1a3f-4db7-a8e9-92b58ecbd21b.mp4
+
 ## Het rapport
 
 Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021, 25 pagina's).  Dit werk valt onder een [Creative Commons Naamsvermelding-GelijkDelen 4.0 Internationaal-licentie](http://creativecommons.org/licenses/by-sa/4.0/).
