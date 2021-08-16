@@ -20,8 +20,6 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 https://user-images.githubusercontent.com/131573/129572480-5443be2a-1a3f-4db7-a8e9-92b58ecbd21b.mp4
 
-maasterplan.mp4
-
 ## Het rapport
 
 Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021, 25 pagina's).  Dit werk valt onder een [Creative Commons Naamsvermelding-GelijkDelen 4.0 Internationaal-licentie](http://creativecommons.org/licenses/by-sa/4.0/).
