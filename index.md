@@ -18,6 +18,7 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 ## Het idee
 
+Klik op het plaatje om het animatiefilmpje te bekijken op YouTube:
 [![MAAsterplan](http://img.youtube.com/vi/qsL0B7MpBtg/0.jpg)](http://www.youtube.com/watch?v=qsL0B7MpBtg "MAAsterplan")
 
 ## Het rapport
