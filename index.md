@@ -18,7 +18,7 @@ De [Regionale Energiestrategie](https://www.regionale-energiestrategie.nl/reszl/
 
 ## Het idee
 
-https://user-images.githubusercontent.com/131573/129572480-5443be2a-1a3f-4db7-a8e9-92b58ecbd21b.mp4
+[![MAAsterplan](http://img.youtube.com/vi/qsL0B7MpBtg/0.jpg)](http://www.youtube.com/watch?v=qsL0B7MpBtg "MAAsterplan")
 
 ## Het rapport
 
