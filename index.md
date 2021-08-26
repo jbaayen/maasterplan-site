@@ -33,7 +33,7 @@ Luchthaven en windenergie gaan slecht samen:
 Aantal banen Maastricht-Aachen airport veel lager dan gedacht (geen verrassing voor eenieder die in de cijfers van de luchthaven is gedoken):
 * Opnieuw bewijs van rammelend onderzoek naar Maastricht Airport ([De Volkskrant](https://www.volkskrant.nl/nieuws-achtergrond/opnieuw-bewijs-van-rammelend-onderzoek-naar-maastricht-airport~b77f3861/), 22 juli 2021)
 * Universiteit geeft toe: onderzoek naar werkgelegenheid vliegveld MAA deugt niet ([De Limburger](https://www.limburger.nl/cnt/dmf20210722_96815986), 22 juli 2021)
-* Van opgepompte werkgelegenheid MAA blijft nauwelijks iets over ([SchipholWatch](https://schipholwatch.nl/2021/08/18/van-opgepompte-werkgelegenheid-maa-blijft-nauwelijks-iets-over/), 18 augustus 2021)
+* ‘Maastricht Aachen Airport levert Limburg veel minder werk op dan externe bureaus becijferen’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210826_93293818), 26 augustus 2021)
 
 Duurzaam vliegen bestaat niet:
 *  Duurzaam vliegen bestaat niet. Tijd om ermee te stoppen ([De Correspondent](https://decorrespondent.nl/12622/duurzaam-vliegen-bestaat-niet-tijd-om-ermee-te-stoppen/1391057998-c1b39812), 3 augustus 2021)
