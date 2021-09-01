@@ -35,8 +35,11 @@ Aantal banen Maastricht-Aachen airport veel lager dan gedacht (geen verrassing v
 * Universiteit geeft toe: onderzoek naar werkgelegenheid vliegveld MAA deugt niet ([De Limburger](https://www.limburger.nl/cnt/dmf20210722_96815986), 22 juli 2021)
 * ‘Maastricht Aachen Airport levert Limburg veel minder werk op dan externe bureaus becijferen’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210826_93293818), 26 augustus 2021)
 
+Nieuwsblad Transport roept op tot stop subsidies ‘omwille van de werkgelegenheid’:
+* Stop met subsidies ‘omwille van de werkgelegenheid’ ([Nieuwsblad Transport](https://www.nt.nl/commentaar/2021/08/25/stop-met-subsidies-omwille-van-de-werkgelegenheid/), 25 augustus 2021)
+
 Duurzaam vliegen bestaat niet:
-*  Duurzaam vliegen bestaat niet. Tijd om ermee te stoppen ([De Correspondent](https://decorrespondent.nl/12622/duurzaam-vliegen-bestaat-niet-tijd-om-ermee-te-stoppen/1391057998-c1b39812), 3 augustus 2021)
+* Duurzaam vliegen bestaat niet. Tijd om ermee te stoppen ([De Correspondent](https://decorrespondent.nl/12622/duurzaam-vliegen-bestaat-niet-tijd-om-ermee-te-stoppen/1391057998-c1b39812), 3 augustus 2021)
 
 In de Limburger verscheen een artikel over het MAAsterplan (helaas zonder grafiek en getallen):
 * Proefballonnetje uit Beekdaelen: ‘Luchthaven als toplocatie voor duurzame energie’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210519_94966242), 19 mei 2021)
