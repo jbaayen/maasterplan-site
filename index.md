@@ -33,7 +33,7 @@ Provincie laat sluiting luchthaven onderzoeken:
 Luchthaven en windenergie gaan slecht samen:
 * Ook piloten in verzet tegen bouw windturbines Holtum: ‘Gevaar voor kleine vliegtuigen van en naar Maastricht Aachen Airport’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210806_95698674), 6 augustus 2021)
 
-Aantal banen Maastricht-Aachen airport veel lager dan gedacht (geen verrassing voor eenieder die in de cijfers van de luchthaven is gedoken):
+Aantal banen Maastricht-Aachen airport veel lager dan gedacht:
 * Opnieuw bewijs van rammelend onderzoek naar Maastricht Airport ([De Volkskrant](https://www.volkskrant.nl/nieuws-achtergrond/opnieuw-bewijs-van-rammelend-onderzoek-naar-maastricht-airport~b77f3861/), 22 juli 2021)
 * Universiteit geeft toe: onderzoek naar werkgelegenheid vliegveld MAA deugt niet ([De Limburger](https://www.limburger.nl/cnt/dmf20210722_96815986), 22 juli 2021)
 * ‘Maastricht Aachen Airport levert Limburg veel minder werk op dan externe bureaus becijferen’ ([De Limburger](https://www.limburger.nl/cnt/dmf20210826_93293818), 26 augustus 2021)
