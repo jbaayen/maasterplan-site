@@ -28,6 +28,7 @@ Lees het volledige MAAsterplan [hier](maasterplan-mei-2021.pdf) (versie mei 2021
 ## Het MAAsterplan en de media
 
 Provincie laat sluiting luchthaven onderzoeken:
+* Het voortbestaan van vliegveld Maastricht is niet langer zeker ([Trouw](https://www.trouw.nl/binnenland/het-voortbestaan-van-vliegveld-maastricht-is-niet-langer-zeker~b67f03780/), 8 september 2021)
 * Sluiting Maastricht Aachen Airport niet langer taboe voor provinciebestuur ([De Limburger](https://www.limburger.nl/cnt/dmf20210908_95510098), 8 september 2021)
 
 Luchthaven en windenergie gaan slecht samen:
